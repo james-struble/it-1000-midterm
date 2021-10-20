@@ -1,4 +1,6 @@
-# James Struble
+# James Struble  
+515 S. 5th Street, Columbia, Missouri 65201 • (636)-706-6400  
+[Email](mailto:jas2hf@umsystem.edu) • [LinkedIn](www.linkedin.com/in/james-struble)
 
 **EDUCATION**
 - - -
