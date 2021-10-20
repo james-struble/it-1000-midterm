@@ -27,10 +27,10 @@ Graduated 2020 with Summa Cum Laude honors - GPA: 4.3**
 
 **WORK EXPERIENCE**
 - - -
-Courtesy Clerk, Dierbergs Markets, Inc. - Saint Charles, Missouri
-November 2019 - July 2020
+**Courtesy Clerk, Dierbergs Markets, Inc. - Saint Charles, Missouri  
+November 2019 - July 2020**
 * Assisted customers and worked multiple positions. Worked additional hours and shifts when requested, and continued working as an essential worker during the COVID-19 pandemic.
 
-Crew Member, Wendy’s - Saint Charles, Missouri
-June 2018 – October 2018
+**Crew Member, Wendy’s - Saint Charles, Missouri  
+June 2018 – October 2018**
 * Learned and worked multiple positions in a fast-paced environment with emphasis on customer service, including register/cash handling.  Worked additional hours and shifts when requested.  Averaged 24 hours per week.
