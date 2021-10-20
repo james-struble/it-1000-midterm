@@ -36,3 +36,5 @@ November 2019 - July 2020**
 **Crew Member, Wendy’s - Saint Charles, Missouri  
 June 2018 – October 2018**
 * Learned and worked multiple positions in a fast-paced environment with emphasis on customer service, including register/cash handling.  Worked additional hours and shifts when requested.  Averaged 24 hours per week.
+- - -
+[Back to home](https://github.com/james-struble/it-1000-midterm/blob/507986f37ee4f584b793b65c5b446a0d82820054/README.md)
